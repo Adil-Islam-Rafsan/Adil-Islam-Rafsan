@@ -1,16 +1,16 @@
-## Hi there 👋
+# 𓂀 Adil Islam Rafsan
 
-<!--
-**Adil-Islam-Rafsan/Adil-Islam-Rafsan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+*The world is but a veil over the unknown.*
 
-Here are some ideas to get you started:
+🇧🇩 Bangladesh | Developer • Novelist • Artist
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+`Sequence Unknown` · `Identity Classified`
+
+⚜️ The Fool Who Doesn't Belong to This Era.
+
+*"Do not seek the truth unless you are prepared to face what lies beyond it."*
+
+**Codename:** Side Character
+**Status:** Observing from the shadows.
+
+_The curtain has not yet been lifted._
